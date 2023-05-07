@@ -1,6 +1,6 @@
 ### nagetspesial
 
-<div style="width:100%;height:0;padding-bottom:56%;position:relative;"><img src="[https://cdn.discordapp.com/attachments/915673757102784526/1098893904734081054/download.gif](https://media1.giphy.com/media/xT9IgMwRFVcbF0HCcU/giphy.gif?ep=v1_gifs_search)"/>
+<div style="width:100%;height:0;padding-bottom:56%;position:relative;"><img src="[https://cdn.discordapp.com/attachments/915673757102784526/1098893904734081054/download.gif"/>
 </div><p><a href="https://giphy.com/gifs/funimation-lazy-xT9IgMwRFVcbF0HCcU">via GIPHY</a></p>
 
 self-studied student
